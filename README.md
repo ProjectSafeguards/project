@@ -1,4 +1,4 @@
-# Project Safegaurds  
+# Project Safeguards  
 
 ## Purpose
 The safeguarding of the public health and of the individual's right to keep and bear arms. 
